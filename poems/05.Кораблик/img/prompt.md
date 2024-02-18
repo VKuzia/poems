@@ -1,0 +1,1 @@
+A small self-made toy ship made of paper calmly sails in a lake with an orange sunset in background, but there is a mysterious waterfall in the right of the picture. Watercolor painting bright colors, beautiful scenery
